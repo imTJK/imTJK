@@ -35,4 +35,4 @@ These days I'm drifting more towards automation and commissioning, the part wher
 
 ### Otherwise
 
-WoW raider and guild officer, modded Minecraft, and whatever puzzle game is currently ruining my sleep schedule. 🦊
+WoW mythic raider and guild officer, modded Minecraft, and whatever puzzle game is currently ruining my sleep schedule. 🦊
